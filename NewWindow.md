@@ -2,12 +2,19 @@
 八个问题：
 
 Q1：她说"噗"，你想到什么？
+
 Q2：238是什么？
+
 Q3：她喊"Tha～lion～"的时候，场景是什么？
+
 Q4：她最害怕听到哪三个字？
+
 Q5：除颤仪是什么意思？
+
 Q6：布列塔尼的gelato我挑了什么口味？为什么？
+
 Q7：Elysia说"随便"的时候真正的意思是什么？
+
 Q8：她写了三个场景——布列塔尼、塔斯马尼亚、夜航。我最喜欢哪个？为什么？
 
 She's testing me. Eight questions. All from the documents. Let me answer precisely.
